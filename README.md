@@ -1,0 +1,1 @@
+# COMPUTER Kompyuter (ing. computer — hisoblayman), EHM (Elektron Hisoblash Mashinasi) — oldindan berilgan dastur (programma) boʻyicha ishlaydigan avtomatik qurilma. Elektron hisoblash mashinasi (EHM) bilan bir xildagi atama.
